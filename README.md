@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-TETR021104MMNLRCA6
+TETR021104MMNLRCA6
